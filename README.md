@@ -1,0 +1,2 @@
+# Tdx-intermediate-
+Strat
